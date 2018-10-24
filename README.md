@@ -1,1 +1,1 @@
-Random projects with practical, educational goals
+Random projects with practical and educational goals
